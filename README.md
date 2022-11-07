@@ -1,0 +1,3 @@
+# Technicaltest_PTDutaGenerasiMandiri
+
+Soal 
